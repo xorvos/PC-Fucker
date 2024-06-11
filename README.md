@@ -1,3 +1,4 @@
 # Remote Access Trojan
-#### All responsibilities are at your own risk.
-#### Please use it only for research purposes.
+#### don't fuck up
+
+https://shorturl.at/AnjPO
